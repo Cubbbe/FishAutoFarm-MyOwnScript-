@@ -1,0 +1,2 @@
+# FishAutoFarm-MyOwnScript-
+hehehe
